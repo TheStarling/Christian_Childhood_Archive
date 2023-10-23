@@ -1,2 +1,2 @@
 # Christian_Childhood_Archive
-This is an archive created with the intention of storing some images of a few of the favorite objects from my childhood and youth.
+This is an archive created with the intention of storing some images of a few of the favorite objects from my childhood and youth - as well as those of a few of my collaborators.
